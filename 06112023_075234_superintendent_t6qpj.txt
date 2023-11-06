@@ -1,0 +1,1 @@
+Mel Blanc (the voice of Bugs Bunny) was allergic to carrots
