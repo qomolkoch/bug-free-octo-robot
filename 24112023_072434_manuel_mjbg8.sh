@@ -1,0 +1,1 @@
+The term "The Big Apple" was coined by touring jazz musicians of the 1930s who used the slang expression "apple" for any town or city. Therefore, to play New York City is to play the big time - The Big Apple
