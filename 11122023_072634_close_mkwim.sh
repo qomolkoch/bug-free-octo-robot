@@ -1,0 +1,1 @@
+In November 1999, two women were killed by a lightning bolt. The underwire located in their bras acted as a electrical conductors, and when the lightning bolt hit the bra they left burn marks on their chest
